@@ -35,11 +35,11 @@ If there are any questions regarding this privacy policy you may contact us usin
 
 We love hearing your voice. Let's contact us and stay connected!
 
-Get in touch with me for support via: [Messenger](https://m.me/416305462459391)
+Get in touch with me for support via: [Messenger](https://www.messenger.com/t/hhduong0412)
 
-Email: hthmobilesoft@gmail.com
+Email: hhduong1297@gmail.com
 
-Address: 3 Lane 68 Cau Giay Street, Quan Hoa Ward, Cau Giay District, Hanoi.
+Address: 201 Co Nhue Street, Bac Tu Liem District, Hanoi.
 
 
 
